@@ -1,0 +1,2 @@
+# haftaliksure
+Haftalik Sure Tutucu
